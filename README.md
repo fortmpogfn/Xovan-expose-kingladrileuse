@@ -7,3 +7,5 @@ After that drycheetah got scam by him He Nuked the server.<img width="510" heigh
 So Drycheetah gave him the server and its all.
 I will say that I sorry and don't trust those kind of friend that Always can ruined your life.
 I dont have any proof to show you guys since we where in Vc you can Ask @i9dev if you want more information.
+
+BTW ARKLEY TWINE IS THE SAME GUY AND HAVE 12 OLD AND ON THE PIC IS AI XOVAN DID NOT ASK FOR THE SERVER
